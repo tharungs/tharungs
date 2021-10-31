@@ -7,3 +7,4 @@
 - 📫 How to reach me: mail@tharungs.in 
 - ⚡ Fun fact:  I ❤️ 🐶s & nature 🦋🌴🌱
 
+https://www.cloudskillsboost.google/public_profiles/aaa2964d-cb80-4d64-88bf-69c6c9996764
